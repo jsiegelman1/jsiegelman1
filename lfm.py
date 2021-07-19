@@ -10,12 +10,15 @@ f = open("README.md", "r")
 lines = f.readlines()
 f.close()
 f = open("README.md", "w")
+
 for line in lines:
 	if(not line.startswith('<!-- lfm -->')):
 		f.write(line)
 
+idx = 1
 for a in albums:
-	f.write(a)
+	f.write(idx + ': ' + a)
+	idx = idx + 1
 
 f.close()
 
