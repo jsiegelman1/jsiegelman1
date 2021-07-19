@@ -14,7 +14,8 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month (Updated Weekly)
-Last updated at:2021-07-19 20:47:29.8999461. <!-- lfm -->For the first time by Black Country, New Road  
+*Last updated at:*2021-07-19 20:49:20.966811  
+1. <!-- lfm -->For the first time by Black Country, New Road  
 2. <!-- lfm -->Frances the Mute by The Mars Volta  
 3. <!-- lfm -->The Great Dismal by Nothing  
 4. <!-- lfm -->Another Thought by Arthur Russell  
