@@ -17,7 +17,7 @@ for line in lines:
 
 idx = 1
 for a in albums:
-	f.write(idx + ': ' + a)
+	f.write(str(idx) + ': ' + a)
 	idx = idx + 1
 
 f.close()
