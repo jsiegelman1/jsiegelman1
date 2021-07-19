@@ -12,7 +12,7 @@ f.close()
 f = open("README.md", "w")
 
 for line in lines:
-	if(not line.startswith('<!-- lfm -->')):
+	if('<!-- lfm -->' not in line):
 		f.write(line)
 
 idx = 1
