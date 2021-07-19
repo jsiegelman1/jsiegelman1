@@ -10,6 +10,5 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - University of Washington Seattle alumni
 - Music lover and Dog person
 - Roguelike enthusiast
-- Currently reading The Structure of Scientific Revolutions by Thomas Kuhn
 - Committed Kantian and Modal Logic hobbyist
 - Pronouns: He/Him
