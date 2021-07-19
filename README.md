@@ -13,7 +13,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Committed Kantian and Modal Logic hobbyist
 - Pronouns: He/Him
 
-### My Most Listened to Albums of the Last Month (Updated Weekly)
+### My Most Listened to Albums of the Last Month
 **Last updated at:** 07/19/2021 21:49 <!-- lfm -->   
 1. <!-- lfm -->For the first time by Black Country, New Road  
 2. <!-- lfm -->Frances the Mute by The Mars Volta  
