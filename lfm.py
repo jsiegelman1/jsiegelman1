@@ -1,5 +1,6 @@
 import sys
 import json
+from datetime import datetime
 albums = []
 for line in sys.stdin:
 	j = json.loads(line)
@@ -15,6 +16,7 @@ for line in lines:
 	if('<!-- lfm -->' not in line):
 		f.write(line)
 
+f.write('Last updated at:' + str(datetime.now()))
 idx = 1
 for a in albums:
 	f.write(str(idx) + '. ' + a)
