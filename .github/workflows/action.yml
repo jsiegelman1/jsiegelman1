@@ -17,7 +17,7 @@ jobs:
       - name: get last.fm
         env:
           api_key: ${{ secrets.API_KEY }}
-        run: curl "http://ws.audioscrobbler.com/2.0/?method=user.getTopAlbums&user=Tenebre55&period=1month&limit=10&api_key=$api_key$&format=json" | python ./lfm.py
+        run: curl "http://ws.audioscrobbler.com/2.0/?method=user.getTopAlbums&user=Tenebre55&period=1month&limit=10&api_key="$api_key"$&format=json" | python ./lfm.py
       - name: Commit changes
         run: |
           git config --local user.email "action@github.com"
