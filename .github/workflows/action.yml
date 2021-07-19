@@ -19,6 +19,8 @@ jobs:
         run: curl "http://ws.audioscrobbler.com/2.0/?method=user.getTopAlbums&user=Tenebre55&period=7d&limit=10&api_key=ac6bef34d4bbee1eb30eb15d09488c19&format=json" >> README.md
       - name: Commit changes
         run: |
+          git config --local user.email "action@github.com"
+          git config --local user.name "GitHub Action"
           git add README.md
           git commit -m "Updated Readme from last.fm"
       - name: Push
