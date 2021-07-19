@@ -13,6 +13,16 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Committed Kantian and Modal Logic hobbyist
 - Pronouns: He/Him
 
+
+
+
+
+
+
+
+
+
+
 <!-- lfm -->Loveless by My Bloody Valentine
 
 <!-- lfm -->Relationship of Command by At the Drive-In
