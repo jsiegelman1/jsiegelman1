@@ -24,9 +24,4 @@ My name is Jacob Siegelman, I'm a software engineer who has been passionate abou
 - Pronouns: He/Him
 
 
-<script>
-  fetch(http://ws.audioscrobbler.com/2.0/?method=user.getrecenttracks&user=tenebre55&api_key=ac6bef34d4bbee1eb30eb15d09488c19&format=json).then(d => {
-  console.log(d);
-</script>
-
 
