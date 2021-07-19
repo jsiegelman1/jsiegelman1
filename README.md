@@ -13,3 +13,23 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Committed Kantian and Modal Logic hobbyist
 - Pronouns: He/Him
 
+<!-- lfm -->Loveless by My Bloody Valentine
+
+<!-- lfm -->Relationship of Command by At the Drive-In
+
+<!-- lfm -->Deathconsciousness by Have a Nice Life
+
+<!-- lfm -->In Rainbows by Radiohead
+
+<!-- lfm -->Singularity by Jon Hopkins
+
+<!-- lfm -->Spiderland by Slint
+
+<!-- lfm -->...I Care Because You Do by Aphex Twin
+
+<!-- lfm -->You Won't Get What You Want by Daughters
+
+<!-- lfm -->Selected Ambient Works 85-92 by Aphex Twin
+
+<!-- lfm -->Frances the Mute by The Mars Volta
+
