@@ -6,6 +6,7 @@ name: lfm
 on:
   schedule:
     - cron: "0 0 * * *"
+  workflow_dispatch:
 
 jobs:
   fetch:
