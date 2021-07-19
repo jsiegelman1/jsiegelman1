@@ -13,7 +13,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Committed Kantian and Modal Logic hobbyist
 - Pronouns: He/Him
 
-### My Most Listened to Albums of the Last 30 Days (Updated Weekly)
+### My Most Listened to Albums of the Last Month (Updated Weekly)
 1: <!-- lfm -->Loveless by My Bloody Valentine  
 2: <!-- lfm -->Relationship of Command by At the Drive-In  
 3: <!-- lfm -->Deathconsciousness by Have a Nice Life  
