@@ -3,6 +3,7 @@ import json
 from datetime import datetime
 albums = []
 for line in sys.stdin:
+	print(line)
 	j = json.loads(line)
 	for a in j['topalbums']['album']:
 		albums.append('<!-- lfm -->' + a['name'] + ' by ' + a['artist']['name'] + '  \n')
