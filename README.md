@@ -14,13 +14,13 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month (Updated Weekly)
-1. <!-- lfm -->Loveless by My Bloody Valentine  
-2. <!-- lfm -->Relationship of Command by At the Drive-In  
-3. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-4. <!-- lfm -->In Rainbows by Radiohead  
-5. <!-- lfm -->Singularity by Jon Hopkins  
-6. <!-- lfm -->Spiderland by Slint  
-7. <!-- lfm -->...I Care Because You Do by Aphex Twin  
-8. <!-- lfm -->You Won't Get What You Want by Daughters  
-9. <!-- lfm -->Selected Ambient Works 85-92 by Aphex Twin  
-10. <!-- lfm -->Frances the Mute by The Mars Volta  
+1. <!-- lfm -->For the first time by Black Country, New Road  
+2. <!-- lfm -->Frances the Mute by The Mars Volta  
+3. <!-- lfm -->The Great Dismal by Nothing  
+4. <!-- lfm -->Another Thought by Arthur Russell  
+5. <!-- lfm -->The Dream Is Over by PUP  
+6. <!-- lfm -->13 Songs by Fugazi  
+7. <!-- lfm -->Double Negative by Low  
+8. <!-- lfm -->The Lemon of Pink (Remastered) by The Books  
+9. <!-- lfm -->Bright Green Field by Squid  
+10. <!-- lfm -->The Fallen Crimson by Envy  
