@@ -5,9 +5,7 @@ name: lfm
 # Controls when the workflow will run
 on:
   schedule:
-    - cron: "35 20 * * *"
-
-  workflow_dispatch:
+    - cron: "40 20 * * *"
 
 jobs:
   fetch:
