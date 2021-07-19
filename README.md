@@ -23,23 +23,23 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 
 
 
-<!-- lfm -->Loveless by My Bloody Valentine
 
-<!-- lfm -->Relationship of Command by At the Drive-In
 
-<!-- lfm -->Deathconsciousness by Have a Nice Life
 
-<!-- lfm -->In Rainbows by Radiohead
 
-<!-- lfm -->Singularity by Jon Hopkins
 
-<!-- lfm -->Spiderland by Slint
 
-<!-- lfm -->...I Care Because You Do by Aphex Twin
 
-<!-- lfm -->You Won't Get What You Want by Daughters
 
-<!-- lfm -->Selected Ambient Works 85-92 by Aphex Twin
 
-<!-- lfm -->Frances the Mute by The Mars Volta
 
+1: <!-- lfm -->Loveless by My Bloody Valentine  
+2: <!-- lfm -->Relationship of Command by At the Drive-In  
+3: <!-- lfm -->Deathconsciousness by Have a Nice Life  
+4: <!-- lfm -->In Rainbows by Radiohead  
+5: <!-- lfm -->Singularity by Jon Hopkins  
+6: <!-- lfm -->Spiderland by Slint  
+7: <!-- lfm -->...I Care Because You Do by Aphex Twin  
+8: <!-- lfm -->You Won't Get What You Want by Daughters  
+9: <!-- lfm -->Selected Ambient Works 85-92 by Aphex Twin  
+10: <!-- lfm -->Frances the Mute by The Mars Volta  
