@@ -18,5 +18,4 @@ for a in albums:
 	f.write(a)
 
 f.close()
-print 'Wrote albums to README'
 
