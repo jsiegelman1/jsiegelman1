@@ -17,7 +17,7 @@ for line in lines:
 	if('<!-- lfm -->' not in line):
 		f.write(line)
 
-f.write('**Last updated at:** ' + str(datetime.now().strftime('%m/%d/%Y')) + ' <!-- lfm -->   \n')
+f.write('**Last updated:** ' + str(datetime.now().strftime('%m/%d/%Y')) + ' <!-- lfm -->   \n')
 idx = 1
 for a in albums:
 	f.write(str(idx) + '. ' + a)
