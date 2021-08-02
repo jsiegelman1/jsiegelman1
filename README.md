@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/26/2021 <!-- lfm -->   
+**Last updated:** 08/02/2021 <!-- lfm -->   
 1. <!-- lfm -->A Moon Shaped Pool by Radiohead  
-2. <!-- lfm -->The Queen Is Dead by The Smiths  
-3. <!-- lfm -->Another Thought by Arthur Russell  
-4. <!-- lfm -->Relationship of Command by At the Drive-In  
-5. <!-- lfm -->For the first time by Black Country, New Road  
+2. <!-- lfm -->For the first time by Black Country, New Road  
+3. <!-- lfm -->A Tiny House, in Secret Speeches, Polar Equals by Sweet Trip  
+4. <!-- lfm -->Another Thought by Arthur Russell  
+5. <!-- lfm -->Bright Green Field by Squid  
