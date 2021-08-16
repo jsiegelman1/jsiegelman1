@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/09/2021 <!-- lfm -->   
-1. <!-- lfm -->A Moon Shaped Pool by Radiohead  
-2. <!-- lfm -->For the first time by Black Country, New Road  
+**Last updated:** 08/16/2021 <!-- lfm -->   
+1. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
+2. <!-- lfm -->A Moon Shaped Pool by Radiohead  
 3. <!-- lfm -->In Rainbows by Radiohead  
 4. <!-- lfm -->A Tiny House, in Secret Speeches, Polar Equals by Sweet Trip  
-5. <!-- lfm -->Another Thought by Arthur Russell  
+5. <!-- lfm -->For the First Time by Black Country, New Road  
