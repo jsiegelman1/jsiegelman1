@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/23/2021 <!-- lfm -->   
+**Last updated:** 08/30/2021 <!-- lfm -->   
 1. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
-2. <!-- lfm -->For the First Time by Black Country, New Road  
+2. <!-- lfm -->13 Songs by Fugazi  
 3. <!-- lfm -->A Tiny House, in Secret Speeches, Polar Equals by Sweet Trip  
-4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->In Rainbows by Radiohead  
+4. <!-- lfm -->Velocity: design: comfort. by Sweet Trip  
+5. <!-- lfm -->Frances the Mute by The Mars Volta  
