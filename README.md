@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 09/20/2021 <!-- lfm -->   
-1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+**Last updated:** 09/27/2021 <!-- lfm -->   
+1. <!-- lfm -->HEY WHAT by Low  
 2. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
-3. <!-- lfm -->Double Negative by Low  
-4. <!-- lfm -->13 Songs by Fugazi  
-5. <!-- lfm -->HEY WHAT by Low  
+3. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+4. <!-- lfm -->Double Negative by Low  
+5. <!-- lfm -->13 Songs by Fugazi  
