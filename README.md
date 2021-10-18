@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/11/2021 <!-- lfm -->   
+**Last updated:** 10/18/2021 <!-- lfm -->   
 1. <!-- lfm -->HEY WHAT by Low  
-2. <!-- lfm -->Double Negative by Low  
-3. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-4. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
-5. <!-- lfm -->OK Computer by Radiohead  
+2. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+3. <!-- lfm -->Double Negative by Low  
+4. <!-- lfm -->OK Computer by Radiohead  
+5. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
