@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 11/01/2021 <!-- lfm -->   
+**Last updated:** 11/08/2021 <!-- lfm -->   
 1. <!-- lfm -->Double Negative by Low  
-2. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-3. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
-4. <!-- lfm -->Unknown Pleasures by Joy Division  
-5. <!-- lfm -->The Great Dismal by Nothing  
+2. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
+3. <!-- lfm -->Unknown Pleasures by Joy Division  
+4. <!-- lfm -->The Great Dismal by Nothing  
+5. <!-- lfm -->Return of the Frog Queen (Expanded Edition) by Jeremy Enigk  
