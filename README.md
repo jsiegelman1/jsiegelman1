@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 11/22/2021 <!-- lfm -->   
-1. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
-2. <!-- lfm -->Loveless by My Bloody Valentine  
-3. <!-- lfm -->Spiderland by Slint  
-4. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-5. <!-- lfm -->The Great Dismal by Nothing  
+**Last updated:** 11/29/2021 <!-- lfm -->   
+1. <!-- lfm -->Loveless by My Bloody Valentine  
+2. <!-- lfm -->Spiderland by Slint  
+3. <!-- lfm -->Frances the Mute by The Mars Volta  
+4. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
+5. <!-- lfm -->For the First Time by Black Country, New Road  
