@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 11/29/2021 <!-- lfm -->   
+**Last updated:** 12/06/2021 <!-- lfm -->   
 1. <!-- lfm -->Loveless by My Bloody Valentine  
 2. <!-- lfm -->Spiderland by Slint  
 3. <!-- lfm -->Frances the Mute by The Mars Volta  
