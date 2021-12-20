@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/13/2021 <!-- lfm -->   
-1. <!-- lfm -->For the First Time by Black Country, New Road  
-2. <!-- lfm -->Loveless by My Bloody Valentine  
-3. <!-- lfm -->To See the Next Part of the Dream by Parannoul  
-4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->Deathconsciousness by Have a Nice Life  
+**Last updated:** 12/20/2021 <!-- lfm -->   
+1. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
+2. <!-- lfm -->For the First Time by Black Country, New Road  
+3. <!-- lfm -->Loveless by My Bloody Valentine  
+4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+5. <!-- lfm -->The Great Dismal by Nothing  
