@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/20/2021 <!-- lfm -->   
-1. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
-2. <!-- lfm -->For the First Time by Black Country, New Road  
-3. <!-- lfm -->Loveless by My Bloody Valentine  
-4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-5. <!-- lfm -->The Great Dismal by Nothing  
+**Last updated:** 12/27/2021 <!-- lfm -->   
+1. <!-- lfm -->For Those I Love by For Those I Love  
+2. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
+3. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
+4. <!-- lfm -->Yank Crime by Drive Like Jehu  
+5. <!-- lfm -->The View from This Tower by Faraquet  
