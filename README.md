@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/27/2021 <!-- lfm -->   
+**Last updated:** 01/03/2022 <!-- lfm -->   
 1. <!-- lfm -->For Those I Love by For Those I Love  
 2. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
-3. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
-4. <!-- lfm -->Yank Crime by Drive Like Jehu  
-5. <!-- lfm -->The View from This Tower by Faraquet  
+3. <!-- lfm -->Unknown Pleasures by Joy Division  
+4. <!-- lfm -->For the First Time by Black Country, New Road  
+5. <!-- lfm -->Double Negative by Low  
