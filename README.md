@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 01/03/2022 <!-- lfm -->   
+**Last updated:** 01/10/2022 <!-- lfm -->   
 1. <!-- lfm -->For Those I Love by For Those I Love  
-2. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
-3. <!-- lfm -->Unknown Pleasures by Joy Division  
-4. <!-- lfm -->For the First Time by Black Country, New Road  
-5. <!-- lfm -->Double Negative by Low  
+2. <!-- lfm -->OK Computer by Radiohead  
+3. <!-- lfm -->Calculating Infinity by The Dillinger Escape Plan  
+4. <!-- lfm -->Unknown Pleasures by Joy Division  
+5. <!-- lfm -->The Great Dismal by Nothing  
