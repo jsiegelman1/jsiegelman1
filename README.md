@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 01/17/2022 <!-- lfm -->   
-1. <!-- lfm -->For Those I Love by For Those I Love  
-2. <!-- lfm -->Unknown Pleasures by Joy Division  
-3. <!-- lfm -->Double Negative by Low  
-4. <!-- lfm -->OK Computer by Radiohead  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+**Last updated:** 01/24/2022 <!-- lfm -->   
+1. <!-- lfm -->Unknown Pleasures by Joy Division  
+2. <!-- lfm -->Dummy by Portishead  
+3. <!-- lfm -->Endtroducing..... by DJ Shadow  
+4. <!-- lfm -->13 Songs by Fugazi  
+5. <!-- lfm -->OK Computer by Radiohead  
