@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 01/31/2022 <!-- lfm -->   
+**Last updated:** 02/07/2022 <!-- lfm -->   
 1. <!-- lfm -->Dummy by Portishead  
 2. <!-- lfm -->Endtroducing..... by DJ Shadow  
-3. <!-- lfm -->13 Songs by Fugazi  
-4. <!-- lfm -->OK Computer by Radiohead  
-5. <!-- lfm -->Visions of Bodies Being Burned by clipping.  
+3. <!-- lfm -->Maxinquaye by Tricky  
+4. <!-- lfm -->13 Songs by Fugazi  
+5. <!-- lfm -->OK Computer by Radiohead  
