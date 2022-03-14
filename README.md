@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/07/2022 <!-- lfm -->   
+**Last updated:** 03/14/2022 <!-- lfm -->   
 1. <!-- lfm -->Dummy by Portishead  
 2. <!-- lfm -->Ants From Up There by Black Country, New Road  
 3. <!-- lfm -->Maxinquaye by Tricky  
-4. <!-- lfm -->The Suburbs by Arcade Fire  
-5. <!-- lfm -->Double Negative by Low  
+4. <!-- lfm -->Double Negative by Low  
+5. <!-- lfm -->Endtroducing..... by DJ Shadow  
