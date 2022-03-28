@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/21/2022 <!-- lfm -->   
+**Last updated:** 03/28/2022 <!-- lfm -->   
 1. <!-- lfm -->Dummy by Portishead  
-2. <!-- lfm -->Maxinquaye by Tricky  
-3. <!-- lfm -->Very Mercenary by The Herbaliser  
-4. <!-- lfm -->Ants From Up There by Black Country, New Road  
-5. <!-- lfm -->Bright Green Field by Squid  
+2. <!-- lfm -->Ants From Up There by Black Country, New Road  
+3. <!-- lfm -->Maxinquaye by Tricky  
+4. <!-- lfm -->Very Mercenary by The Herbaliser  
+5. <!-- lfm -->Endtroducing..... by DJ Shadow  
