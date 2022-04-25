@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/18/2022 <!-- lfm -->   
+**Last updated:** 04/25/2022 <!-- lfm -->   
 1. <!-- lfm -->Unspoken Words by Max Cooper  
 2. <!-- lfm -->Ants From Up There by Black Country, New Road  
 3. <!-- lfm -->The Suburbs by Arcade Fire  
-4. <!-- lfm -->Dummy by Portishead  
-5. <!-- lfm -->The Queen Is Dead by The Smiths  
+4. <!-- lfm -->Bright Green Field by Squid  
+5. <!-- lfm -->Dummy by Portishead  
