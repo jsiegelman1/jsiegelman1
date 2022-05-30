@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/23/2022 <!-- lfm -->   
+**Last updated:** 05/30/2022 <!-- lfm -->   
 1. <!-- lfm -->Loveless by my bloody valentine  
 2. <!-- lfm -->A Light For Attracting Attention by The Smile  
 3. <!-- lfm -->The Suburbs by Arcade Fire  
-4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-5. <!-- lfm -->Dummy by Portishead  
+4. <!-- lfm -->Dummy by Portishead  
+5. <!-- lfm -->You Won't Get What You Want by Daughters  
