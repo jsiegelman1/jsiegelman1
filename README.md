@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/06/2022 <!-- lfm -->   
+**Last updated:** 06/13/2022 <!-- lfm -->   
 1. <!-- lfm -->A Light For Attracting Attention by The Smile  
 2. <!-- lfm -->You Won't Get What You Want by Daughters  
-3. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
-4. <!-- lfm -->Mr. Morale & the Big Steppers by Kendrick Lamar  
-5. <!-- lfm -->Ants From Up There by Black Country, New Road  
+3. <!-- lfm -->Relationship of Command by At the Drive-In  
+4. <!-- lfm -->Dummy by Portishead  
+5. <!-- lfm -->Weatherglow by Asian Glow  
