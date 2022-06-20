@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/13/2022 <!-- lfm -->   
-1. <!-- lfm -->A Light For Attracting Attention by The Smile  
-2. <!-- lfm -->You Won't Get What You Want by Daughters  
-3. <!-- lfm -->Relationship of Command by At the Drive-In  
-4. <!-- lfm -->Dummy by Portishead  
-5. <!-- lfm -->Weatherglow by Asian Glow  
+**Last updated:** 06/20/2022 <!-- lfm -->   
+1. <!-- lfm -->Weatherglow by Asian Glow  
+2. <!-- lfm -->Relationship of Command by At the Drive-In  
+3. <!-- lfm -->You Won't Get What You Want by Daughters  
+4. <!-- lfm -->The Great Dismal by Nothing  
+5. <!-- lfm -->Ravedeath, 1972 by Tim Hecker  
