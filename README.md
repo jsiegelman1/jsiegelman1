@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/04/2022 <!-- lfm -->   
+**Last updated:** 07/11/2022 <!-- lfm -->   
 1. <!-- lfm -->A Light For Attracting Attention by The Smile  
 2. <!-- lfm -->Relationship of Command by At the Drive-In  
 3. <!-- lfm -->You Won't Get What You Want by Daughters  
-4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->Ants From Up There by Black Country, New Road  
+4. <!-- lfm -->Ants From Up There by Black Country, New Road  
+5. <!-- lfm -->Double Negative by Low  
