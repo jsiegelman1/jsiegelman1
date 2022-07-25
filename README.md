@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/18/2022 <!-- lfm -->   
+**Last updated:** 07/25/2022 <!-- lfm -->   
 1. <!-- lfm -->A Light For Attracting Attention by The Smile  
 2. <!-- lfm -->Relationship of Command by At the Drive-In  
-3. <!-- lfm -->Ants From Up There by Black Country, New Road  
-4. <!-- lfm -->You Won't Get What You Want by Daughters  
-5. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
+3. <!-- lfm -->Yank Crime by Drive Like Jehu  
+4. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
+5. <!-- lfm -->13 Songs by Fugazi  
