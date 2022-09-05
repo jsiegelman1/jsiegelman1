@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/29/2022 <!-- lfm -->   
-1. <!-- lfm -->The Suburbs by Arcade Fire  
-2. <!-- lfm -->Weighing Souls With Sand by The Angelic Process  
-3. <!-- lfm -->A Light For Attracting Attention by The Smile  
-4. <!-- lfm -->Relationship of Command by At the Drive-In  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+**Last updated:** 09/05/2022 <!-- lfm -->   
+1. <!-- lfm -->A Light For Attracting Attention by The Smile  
+2. <!-- lfm -->Unspoken Words by Max Cooper  
+3. <!-- lfm -->The Suburbs by Arcade Fire  
+4. <!-- lfm -->The Great Dismal by Nothing  
+5. <!-- lfm -->Bright Green Field by Squid  
