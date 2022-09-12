@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 09/05/2022 <!-- lfm -->   
+**Last updated:** 09/12/2022 <!-- lfm -->   
 1. <!-- lfm -->A Light For Attracting Attention by The Smile  
-2. <!-- lfm -->Unspoken Words by Max Cooper  
-3. <!-- lfm -->The Suburbs by Arcade Fire  
-4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->Bright Green Field by Squid  
+2. <!-- lfm -->The Suburbs by Arcade Fire  
+3. <!-- lfm -->Dubnobasswithmyheadman (20th Anniversary Remaster) by Underworld  
+4. <!-- lfm -->Unspoken Words by Max Cooper  
+5. <!-- lfm -->Tiger and the Duke by The Sound of Animals Fighting  
