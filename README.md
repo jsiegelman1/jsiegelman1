@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 09/26/2022 <!-- lfm -->   
+**Last updated:** 10/03/2022 <!-- lfm -->   
 1. <!-- lfm -->The Mars Volta by The Mars Volta  
-2. <!-- lfm -->Dubnobasswithmyheadman (20th Anniversary Remaster) by Underworld  
-3. <!-- lfm -->Unspoken Words by Max Cooper  
-4. <!-- lfm -->Loveless by my bloody valentine  
-5. <!-- lfm -->A Light For Attracting Attention by The Smile  
+2. <!-- lfm -->The Queen Is Dead by The Smiths  
+3. <!-- lfm -->The Great Dismal by Nothing  
+4. <!-- lfm -->A Light For Attracting Attention by The Smile  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
