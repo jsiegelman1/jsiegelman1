@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/03/2022 <!-- lfm -->   
+**Last updated:** 10/10/2022 <!-- lfm -->   
 1. <!-- lfm -->The Mars Volta by The Mars Volta  
-2. <!-- lfm -->The Queen Is Dead by The Smiths  
-3. <!-- lfm -->The Great Dismal by Nothing  
-4. <!-- lfm -->A Light For Attracting Attention by The Smile  
-5. <!-- lfm -->Relationship of Command by At the Drive-In  
+2. <!-- lfm -->The Great Dismal by Nothing  
+3. <!-- lfm -->Ants From Up There by Black Country, New Road  
+4. <!-- lfm -->Relationship of Command by At the Drive-In  
+5. <!-- lfm -->The Shape Of Punk To Come (Deluxe Edition) by Refused  
