@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/31/2022 <!-- lfm -->   
+**Last updated:** 11/07/2022 <!-- lfm -->   
 1. <!-- lfm -->A Light For Attracting Attention by The Smile  
-2. <!-- lfm -->The Queen Is Dead by The Smiths  
-3. <!-- lfm -->Relationship of Command by At the Drive-In  
-4. <!-- lfm -->You'd Prefer an Astronaut by Hum  
-5. <!-- lfm -->The Great Dismal by Nothing  
+2. <!-- lfm -->Dummy by Portishead  
+3. <!-- lfm -->The Queen Is Dead by The Smiths  
+4. <!-- lfm -->Relationship of Command by At the Drive-In  
+5. <!-- lfm -->Inlet by Hum  
