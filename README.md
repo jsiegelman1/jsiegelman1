@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/20/2023 <!-- lfm -->   
-1. <!-- lfm -->Animal Drowning by Knifeplay  
-2. <!-- lfm -->Ultra Truth by Daniel Avery  
-3. <!-- lfm -->A Light for Attracting Attention by The Smile  
+**Last updated:** 02/27/2023 <!-- lfm -->   
+1. <!-- lfm -->Ultra Truth by Daniel Avery  
+2. <!-- lfm -->A Light for Attracting Attention by The Smile  
+3. <!-- lfm -->Animal Drowning by Knifeplay  
 4. <!-- lfm -->After the Magic by Parannoul  
-5. <!-- lfm -->ROADRUNNER: NEW LIGHT, NEW MACHINE by BROCKHAMPTON  
+5. <!-- lfm -->Loveless by my bloody valentine  
