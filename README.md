@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/08/2023 <!-- lfm -->   
-1. <!-- lfm -->ROADRUNNER: NEW LIGHT, NEW MACHINE by BROCKHAMPTON  
-2. <!-- lfm -->The Suburbs by Arcade Fire  
-3. <!-- lfm -->Ultra Truth by Daniel Avery  
-4. <!-- lfm -->Inlet by Hum  
-5. <!-- lfm -->Maxinquaye by Tricky  
+**Last updated:** 05/15/2023 <!-- lfm -->   
+1. <!-- lfm -->Inlet by Hum  
+2. <!-- lfm -->A Light for Attracting Attention by The Smile  
+3. <!-- lfm -->I Want to Be There by Sadness  
+4. <!-- lfm -->Around the Fur by Deftones  
+5. <!-- lfm -->_____ by Sadness  
