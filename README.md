@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/05/2023 <!-- lfm -->   
+**Last updated:** 06/12/2023 <!-- lfm -->   
 1. <!-- lfm -->A Light for Attracting Attention by The Smile  
-2. <!-- lfm -->Inlet by Hum  
-3. <!-- lfm -->Ants From Up There by Black Country, New Road  
-4. <!-- lfm -->Vespertine by Björk  
-5. <!-- lfm -->Loveless by my bloody valentine  
+2. <!-- lfm -->The Suburbs by Arcade Fire  
+3. <!-- lfm -->Inlet by Hum  
+4. <!-- lfm -->Ants From Up There by Black Country, New Road  
+5. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
