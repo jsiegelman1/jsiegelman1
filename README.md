@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/26/2023 <!-- lfm -->   
-1. <!-- lfm -->The Suburbs by Arcade Fire  
-2. <!-- lfm -->O Monolith by Squid  
+**Last updated:** 07/03/2023 <!-- lfm -->   
+1. <!-- lfm -->O Monolith by Squid  
+2. <!-- lfm -->The Suburbs by Arcade Fire  
 3. <!-- lfm -->A Light for Attracting Attention by The Smile  
 4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-5. <!-- lfm -->ROADRUNNER: NEW LIGHT, NEW MACHINE by BROCKHAMPTON  
+5. <!-- lfm -->Inlet by Hum  
