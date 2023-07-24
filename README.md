@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/17/2023 <!-- lfm -->   
-1. <!-- lfm -->O Monolith by Squid  
-2. <!-- lfm -->A Light for Attracting Attention by The Smile  
+**Last updated:** 07/24/2023 <!-- lfm -->   
+1. <!-- lfm -->A Light for Attracting Attention by The Smile  
+2. <!-- lfm -->O Monolith by Squid  
 3. <!-- lfm -->I Want to Be There by Sadness  
-4. <!-- lfm -->Inlet by Hum  
-5. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+4. <!-- lfm -->crystallize (remastered) by 東京酒吐座(Tokyo Shoegazer)  
+5. <!-- lfm -->Inlet by Hum  
