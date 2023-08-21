@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/14/2023 <!-- lfm -->   
-1. <!-- lfm -->A Light for Attracting Attention by The Smile  
+**Last updated:** 08/21/2023 <!-- lfm -->   
+1. <!-- lfm -->Group Therapy 542 by Above & Beyond  
 2. <!-- lfm -->Blue Rev by Alvvays  
-3. <!-- lfm -->The Great Dismal by Nothing  
-4. <!-- lfm -->_____ by Sadness  
-5. <!-- lfm -->Repetition by Unwound  
+3. <!-- lfm -->I Want to Be There by Sadness  
+4. <!-- lfm -->Repetition by Unwound  
+5. <!-- lfm -->_____ by Sadness  
