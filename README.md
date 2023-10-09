@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/02/2023 <!-- lfm -->   
+**Last updated:** 10/09/2023 <!-- lfm -->   
 1. <!-- lfm -->A Light for Attracting Attention by The Smile  
-2. <!-- lfm -->The Great Dismal by Nothing  
-3. <!-- lfm -->Yank Crime by Drive Like Jehu  
-4. <!-- lfm -->New Hell by Greet Death  
-5. <!-- lfm -->Melting Sun by Lantlôs  
+2. <!-- lfm -->Yank Crime by Drive Like Jehu  
+3. <!-- lfm -->The Great Dismal by Nothing  
+4. <!-- lfm -->O Monolith by Squid  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
