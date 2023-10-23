@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/16/2023 <!-- lfm -->   
+**Last updated:** 10/23/2023 <!-- lfm -->   
 1. <!-- lfm -->Yank Crime by Drive Like Jehu  
-2. <!-- lfm -->Repetition by Unwound  
-3. <!-- lfm -->Relationship of Command by At the Drive-In  
-4. <!-- lfm -->O Monolith by Squid  
-5. <!-- lfm -->Source Tags & Codes by ...And You Will Know Us by the Trail of Dead  
+2. <!-- lfm -->Relationship of Command by At the Drive-In  
+3. <!-- lfm -->The View from This Tower by Faraquet  
+4. <!-- lfm -->Repetition by Unwound  
+5. <!-- lfm -->13 Songs by Fugazi  
