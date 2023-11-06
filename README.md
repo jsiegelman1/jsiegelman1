@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/30/2023 <!-- lfm -->   
-1. <!-- lfm -->Yank Crime by Drive Like Jehu  
+**Last updated:** 11/06/2023 <!-- lfm -->   
+1. <!-- lfm -->Pop by Carousels  
 2. <!-- lfm -->You Won't Get What You Want by Daughters  
-3. <!-- lfm -->Relationship of Command by At the Drive-In  
-4. <!-- lfm -->Repetition by Unwound  
-5. <!-- lfm -->crystallize (remastered) by 東京酒吐座(Tokyo Shoegazer)  
+3. <!-- lfm -->Yank Crime by Drive Like Jehu  
+4. <!-- lfm -->crystallize (remastered) by 東京酒吐座(Tokyo Shoegazer)  
+5. <!-- lfm -->Repetition by Unwound  
