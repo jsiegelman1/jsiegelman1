@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/25/2023 <!-- lfm -->   
+**Last updated:** 01/01/2024 <!-- lfm -->   
 1. <!-- lfm -->Inlet by Hum  
 2. <!-- lfm -->Pop by Carousels  
-3. <!-- lfm -->Yank Crime by Drive Like Jehu  
-4. <!-- lfm -->タイムマシンが壊れる前に by 溶けない名前  
-5. <!-- lfm -->O Monolith by Squid  
+3. <!-- lfm -->A Light for Attracting Attention by The Smile  
+4. <!-- lfm -->Yank Crime by Drive Like Jehu  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
