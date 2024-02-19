@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/12/2024 <!-- lfm -->   
+**Last updated:** 02/19/2024 <!-- lfm -->   
 1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
 2. <!-- lfm -->Wall of Eyes by The Smile  
 3. <!-- lfm -->Ultra Truth by Daniel Avery  
