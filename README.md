@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/04/2024 <!-- lfm -->   
-1. <!-- lfm -->Yank Crime by Drive Like Jehu  
-2. <!-- lfm -->Relationship of Command by At the Drive-In  
-3. <!-- lfm -->Ultra Truth by Daniel Avery  
-4. <!-- lfm -->Loveless by my bloody valentine  
-5. <!-- lfm -->The Great Dismal by Nothing  
+**Last updated:** 03/11/2024 <!-- lfm -->   
+1. <!-- lfm -->Double Negative by Low  
+2. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
+3. <!-- lfm -->Yank Crime by Drive Like Jehu  
+4. <!-- lfm -->The Great Dismal by Nothing  
+5. <!-- lfm -->Deceiver by DIIV  
