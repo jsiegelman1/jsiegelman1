@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/15/2024 <!-- lfm -->   
-1. <!-- lfm -->The Singles Collection by Silversun Pickups  
-2. <!-- lfm -->RAT WARS by HEALTH  
+**Last updated:** 04/22/2024 <!-- lfm -->   
+1. <!-- lfm -->RAT WARS by HEALTH  
+2. <!-- lfm -->The Singles Collection by Silversun Pickups  
 3. <!-- lfm -->Ultra Truth by Daniel Avery  
 4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
 5. <!-- lfm -->OK Computer by Radiohead  
