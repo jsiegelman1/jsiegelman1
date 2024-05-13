@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/06/2024 <!-- lfm -->   
-1. <!-- lfm -->RAT WARS by HEALTH  
-2. <!-- lfm -->OK Computer by Radiohead  
-3. <!-- lfm -->The Singles Collection by Silversun Pickups  
-4. <!-- lfm -->Future Perfect by Autolux  
-5. <!-- lfm -->Double Negative by Low  
+**Last updated:** 05/13/2024 <!-- lfm -->   
+1. <!-- lfm -->Future Perfect by Autolux  
+2. <!-- lfm -->RAT WARS by HEALTH  
+3. <!-- lfm -->OK Computer by Radiohead  
+4. <!-- lfm -->Double Negative by Low  
+5. <!-- lfm -->Inlet by Hum  
