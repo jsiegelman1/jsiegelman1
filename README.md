@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/13/2024 <!-- lfm -->   
+**Last updated:** 05/20/2024 <!-- lfm -->   
 1. <!-- lfm -->Future Perfect by Autolux  
-2. <!-- lfm -->RAT WARS by HEALTH  
-3. <!-- lfm -->OK Computer by Radiohead  
-4. <!-- lfm -->Double Negative by Low  
-5. <!-- lfm -->Inlet by Hum  
+2. <!-- lfm -->Tenshi No Inai Machide by Blurred City Lights  
+3. <!-- lfm -->THE DRAIN by Bad Omens  
+4. <!-- lfm -->Mirror Maru - EP by Cashmere Cat  
+5. <!-- lfm -->You Could Do It Tonight by Couch Slut  
