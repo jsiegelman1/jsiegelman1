@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/01/2024 <!-- lfm -->   
+**Last updated:** 07/08/2024 <!-- lfm -->   
 1. <!-- lfm -->Frog in Boiling Water by DIIV  
 2. <!-- lfm -->Future Perfect by Autolux  
 3. <!-- lfm -->The Singles Collection by Silversun Pickups  
