@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/22/2024 <!-- lfm -->   
+**Last updated:** 07/29/2024 <!-- lfm -->   
 1. <!-- lfm -->Frog in Boiling Water by DIIV  
-2. <!-- lfm -->RAT WARS by HEALTH  
+2. <!-- lfm -->Frosting on the Beater by The Posies  
 3. <!-- lfm -->Wall of Eyes by The Smile  
 4. <!-- lfm -->Future Perfect by Autolux  
 5. <!-- lfm -->Double Negative by Low  
