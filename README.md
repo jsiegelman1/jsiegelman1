@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/12/2024 <!-- lfm -->   
+**Last updated:** 08/19/2024 <!-- lfm -->   
 1. <!-- lfm -->Frog in Boiling Water by DIIV  
 2. <!-- lfm -->Frosting on the Beater by The Posies  
 3. <!-- lfm -->Buds by Ovlov  
-4. <!-- lfm -->Shin Megami Tensei: Digital Devil Saga 1&2 Original Soundtrack by アトラスサウンドチーム  
-5. <!-- lfm -->Death Magic by HEALTH  
+4. <!-- lfm -->Premonição by Day e Lara  
+5. <!-- lfm -->Santa Cruz by Pedro the Lion  
