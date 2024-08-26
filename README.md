@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 08/19/2024 <!-- lfm -->   
-1. <!-- lfm -->Frog in Boiling Water by DIIV  
-2. <!-- lfm -->Frosting on the Beater by The Posies  
-3. <!-- lfm -->Buds by Ovlov  
-4. <!-- lfm -->Premonição by Day e Lara  
-5. <!-- lfm -->Santa Cruz by Pedro the Lion  
+**Last updated:** 08/26/2024 <!-- lfm -->   
+1. <!-- lfm -->Frosting on the Beater by The Posies  
+2. <!-- lfm -->Frog in Boiling Water by DIIV  
+3. <!-- lfm -->Premonição by Day e Lara  
+4. <!-- lfm -->Where we've been, Where we go from here by Friko  
+5. <!-- lfm -->Come to Daddy by Aphex Twin  
