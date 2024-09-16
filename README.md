@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 09/09/2024 <!-- lfm -->   
+**Last updated:** 09/16/2024 <!-- lfm -->   
 1. <!-- lfm -->Frog in Boiling Water by DIIV  
 2. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
-3. <!-- lfm -->Premonição by Day e Lara  
+3. <!-- lfm -->Relationship of Command by At the Drive-In  
 4. <!-- lfm -->Yank Crime by Drive Like Jehu  
-5. <!-- lfm -->The Black Moon by Holy Fawn  
+5. <!-- lfm -->Melee by Dogleg  
