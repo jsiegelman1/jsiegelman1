@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/07/2024 <!-- lfm -->   
-1. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
-2. <!-- lfm -->Frog in Boiling Water by DIIV  
-3. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
-4. <!-- lfm -->Relationship of Command by At the Drive-In  
-5. <!-- lfm -->Future Perfect by Autolux  
+**Last updated:** 10/14/2024 <!-- lfm -->   
+1. <!-- lfm -->Cutouts by The Smile  
+2. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
+3. <!-- lfm -->Frog in Boiling Water by DIIV  
+4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
