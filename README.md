@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/21/2024 <!-- lfm -->   
-1. <!-- lfm -->Cutouts by The Smile  
-2. <!-- lfm -->Frog in Boiling Water by DIIV  
-3. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
-4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+**Last updated:** 10/28/2024 <!-- lfm -->   
+1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+2. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
+3. <!-- lfm -->Frog in Boiling Water by DIIV  
+4. <!-- lfm -->Cutouts by The Smile  
 5. <!-- lfm -->The Great Dismal by Nothing  
