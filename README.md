@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/30/2024 <!-- lfm -->   
-1. <!-- lfm -->GNX by Kendrick Lamar  
-2. <!-- lfm -->Dummy by Portishead  
-3. <!-- lfm -->The Singles Collection by Silversun Pickups  
-4. <!-- lfm -->Frog in Boiling Water by DIIV  
-5. <!-- lfm -->The Queen Is Dead by The Smiths  
+**Last updated:** 01/06/2025 <!-- lfm -->   
+1. <!-- lfm -->Frog in Boiling Water by DIIV  
+2. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
+3. <!-- lfm -->Ants From Up There by Black Country, New Road  
+4. <!-- lfm -->Yank Crime by Drive Like Jehu  
+5. <!-- lfm -->To See the Next Part of the Dream by Parannoul  
