@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 01/27/2025 <!-- lfm -->   
+**Last updated:** 02/03/2025 <!-- lfm -->   
 1. <!-- lfm -->Romance by Fontaines D.C.  
 2. <!-- lfm -->The Queen Is Dead by The Smiths  
 3. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
