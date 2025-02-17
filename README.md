@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/10/2025 <!-- lfm -->   
+**Last updated:** 02/17/2025 <!-- lfm -->   
 1. <!-- lfm -->Romance by Fontaines D.C.  
-2. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
-3. <!-- lfm -->Frog in Boiling Water by DIIV  
-4. <!-- lfm -->The Queen Is Dead by The Smiths  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+2. <!-- lfm -->Frog in Boiling Water by DIIV  
+3. <!-- lfm -->RAT WARS by HEALTH  
+4. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
+5. <!-- lfm -->The Singles Collection by Silversun Pickups  
