@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/24/2025 <!-- lfm -->   
-1. <!-- lfm -->Romance by Fontaines D.C.  
-2. <!-- lfm -->RAT WARS by HEALTH  
-3. <!-- lfm -->The Queen Is Dead by The Smiths  
-4. <!-- lfm -->Relationship of Command by At the Drive-In  
-5. <!-- lfm -->Frog in Boiling Water by DIIV  
+**Last updated:** 03/03/2025 <!-- lfm -->   
+1. <!-- lfm -->RAT WARS by HEALTH  
+2. <!-- lfm -->Romance by Fontaines D.C.  
+3. <!-- lfm -->Relationship of Command by At the Drive-In  
+4. <!-- lfm -->Frog in Boiling Water by DIIV  
+5. <!-- lfm -->Yank Crime by Drive Like Jehu  
