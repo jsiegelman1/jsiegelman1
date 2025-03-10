@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/03/2025 <!-- lfm -->   
+**Last updated:** 03/10/2025 <!-- lfm -->   
 1. <!-- lfm -->RAT WARS by HEALTH  
-2. <!-- lfm -->Romance by Fontaines D.C.  
-3. <!-- lfm -->Relationship of Command by At the Drive-In  
-4. <!-- lfm -->Frog in Boiling Water by DIIV  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+2. <!-- lfm -->Relationship of Command by At the Drive-In  
+3. <!-- lfm -->The Great Dismal by Nothing  
+4. <!-- lfm -->Whirr & Nothing (Split Version) by Whirr  
+5. <!-- lfm -->crystallize (remastered) by 東京酒吐座(Tokyo Shoegazer)  
