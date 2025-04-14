@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/07/2025 <!-- lfm -->   
-1. <!-- lfm -->Dead Channel Sky by clipping.  
-2. <!-- lfm -->End of the Nail by Gleemer  
-3. <!-- lfm -->ULTRAPOP by The Armed  
-4. <!-- lfm -->Down Through by Gleemer  
-5. <!-- lfm -->The Great Dismal by Nothing  
+**Last updated:** 04/14/2025 <!-- lfm -->   
+1. <!-- lfm -->End of the Nail by Gleemer  
+2. <!-- lfm -->The Great Dismal by Nothing  
+3. <!-- lfm -->View No Country by Kraus  
+4. <!-- lfm -->ULTRAPOP by The Armed  
+5. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
