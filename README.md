@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/14/2025 <!-- lfm -->   
-1. <!-- lfm -->End of the Nail by Gleemer  
-2. <!-- lfm -->The Great Dismal by Nothing  
-3. <!-- lfm -->View No Country by Kraus  
-4. <!-- lfm -->ULTRAPOP by The Armed  
-5. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
+**Last updated:** 04/21/2025 <!-- lfm -->   
+1. <!-- lfm -->Ape Escape Originape Soundtracks / サルゲッチュ・オリジサル・サウンドトラック by Ape Escape  
+2. <!-- lfm -->Loveless by my bloody valentine  
+3. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
+4. <!-- lfm -->your perfect hands and my repeated words by Sadness  
+5. <!-- lfm -->ULTRAPOP by The Armed  
