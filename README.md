@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/12/2025 <!-- lfm -->   
-1. <!-- lfm -->Where we've been, Where we go from here by Friko  
-2. <!-- lfm -->Ape Escape Originape Soundtracks / サルゲッチュ・オリジサル・サウンドトラック by Ape Escape  
-3. <!-- lfm -->Loveless by my bloody valentine  
+**Last updated:** 05/19/2025 <!-- lfm -->   
+1. <!-- lfm -->Inlet by Hum  
+2. <!-- lfm -->Double Negative by Low  
+3. <!-- lfm -->Where we've been, Where we go from here by Friko  
 4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
+5. <!-- lfm -->Yank Crime by Drive Like Jehu  
