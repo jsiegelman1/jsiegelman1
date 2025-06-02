@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/26/2025 <!-- lfm -->   
+**Last updated:** 06/02/2025 <!-- lfm -->   
 1. <!-- lfm -->Inlet by Hum  
 2. <!-- lfm -->Double Negative by Low  
 3. <!-- lfm -->Where we've been, Where we go from here by Friko  
