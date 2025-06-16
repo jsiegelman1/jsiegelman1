@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/09/2025 <!-- lfm -->   
-1. <!-- lfm -->Inlet by Hum  
-2. <!-- lfm -->Double Negative by Low  
-3. <!-- lfm -->Frog in Boiling Water by DIIV  
-4. <!-- lfm -->The Texas-Jerusalem Crossroads by Lift to Experience  
-5. <!-- lfm -->anything else by Kraus  
+**Last updated:** 06/16/2025 <!-- lfm -->   
+1. <!-- lfm -->Frog in Boiling Water by DIIV  
+2. <!-- lfm -->New Hell by Greet Death  
+3. <!-- lfm -->View No Country by Kraus  
+4. <!-- lfm -->anything else by Kraus  
+5. <!-- lfm -->The Great Dismal by Nothing  
