@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 06/30/2025 <!-- lfm -->   
+**Last updated:** 07/07/2025 <!-- lfm -->   
 1. <!-- lfm -->Downward (2) by Downward  
 2. <!-- lfm -->The Singles Collection by Silversun Pickups  
 3. <!-- lfm -->Sunset Funeral by Glare  
