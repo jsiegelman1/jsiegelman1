@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 07/28/2025 <!-- lfm -->   
-1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-2. <!-- lfm -->Loveless by my bloody valentine  
-3. <!-- lfm -->Repetition by Unwound  
-4. <!-- lfm -->Frog in Boiling Water by DIIV  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+**Last updated:** 08/04/2025 <!-- lfm -->   
+1. <!-- lfm -->Repetition by Unwound  
+2. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+3. <!-- lfm -->Loveless by my bloody valentine  
+4. <!-- lfm -->Sunset Funeral by Glare  
+5. <!-- lfm -->Frog in Boiling Water by DIIV  
