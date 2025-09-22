@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 09/15/2025 <!-- lfm -->   
-1. <!-- lfm -->Come to Daddy by Aphex Twin  
-2. <!-- lfm -->Drukqs by Aphex Twin  
-3. <!-- lfm -->...I Care Because You Do by Aphex Twin  
-4. <!-- lfm -->Die In Love by Greet Death  
-5. <!-- lfm -->Frog in Boiling Water by DIIV  
+**Last updated:** 09/22/2025 <!-- lfm -->   
+1. <!-- lfm -->...I Care Because You Do by Aphex Twin  
+2. <!-- lfm -->Come to Daddy by Aphex Twin  
+3. <!-- lfm -->The Great Dismal by Nothing  
+4. <!-- lfm -->Frog in Boiling Water by DIIV  
+5. <!-- lfm -->Sunset Funeral by Glare  
