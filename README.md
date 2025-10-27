@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 10/20/2025 <!-- lfm -->   
+**Last updated:** 10/27/2025 <!-- lfm -->   
 1. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-2. <!-- lfm -->crystallize (remastered) by 東京酒吐座(Tokyo Shoegazer)  
-3. <!-- lfm -->The Black Moon by Holy Fawn  
-4. <!-- lfm -->The Great Dismal by Nothing  
-5. <!-- lfm -->Leaves Turn Inside You by Unwound  
+2. <!-- lfm -->Leaves Turn Inside You by Unwound  
+3. <!-- lfm -->Unknown Pleasures by Joy Division  
+4. <!-- lfm -->Night-bound Eyes Are Blind To The Day by Whitelands  
+5. <!-- lfm -->Deceiver by DIIV  
