@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 11/10/2025 <!-- lfm -->   
+**Last updated:** 11/17/2025 <!-- lfm -->   
 1. <!-- lfm -->Leaves Turn Inside You by Unwound  
 2. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-3. <!-- lfm -->Spiderland by Slint  
-4. <!-- lfm -->Repetition by Unwound  
-5. <!-- lfm -->Yank Crime by Drive Like Jehu  
+3. <!-- lfm -->Repetition by Unwound  
+4. <!-- lfm -->Yank Crime by Drive Like Jehu  
+5. <!-- lfm -->Wisteria by she's green  
