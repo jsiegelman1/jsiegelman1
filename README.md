@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 12/01/2025 <!-- lfm -->   
+**Last updated:** 12/08/2025 <!-- lfm -->   
 1. <!-- lfm -->THE FUTURE IS HERE AND EVERYTHING NEEDS TO BE DESTROYED by The Armed  
 2. <!-- lfm -->Leaves Turn Inside You by Unwound  
-3. <!-- lfm -->Romance by Fontaines D.C.  
-4. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-5. <!-- lfm -->Spiderland by Slint  
+3. <!-- lfm -->Repetition by Unwound  
+4. <!-- lfm -->...I Care Because You Do by Aphex Twin  
+5. <!-- lfm -->2012 - 2017 by Against All Logic  
