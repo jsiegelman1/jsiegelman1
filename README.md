@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 01/05/2026 <!-- lfm -->   
+**Last updated:** 01/12/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
 2. <!-- lfm -->come back down by Total Wife  
 3. <!-- lfm -->Come to Daddy by Aphex Twin  
-4. <!-- lfm -->...I Care Because You Do by Aphex Twin  
-5. <!-- lfm -->Songs About Fucking (Remastered) by Big Black  
+4. <!-- lfm -->Getting Killed by Geese  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
