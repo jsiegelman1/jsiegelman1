@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/02/2026 <!-- lfm -->   
+**Last updated:** 02/09/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
-2. <!-- lfm -->Relationship of Command by At the Drive-In  
+2. <!-- lfm -->Inlet by Hum  
 3. <!-- lfm -->...I Care Because You Do by Aphex Twin  
-4. <!-- lfm -->Deathconsciousness by Have a Nice Life  
-5. <!-- lfm -->Inlet by Hum  
+4. <!-- lfm -->The Great Dismal by Nothing  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
