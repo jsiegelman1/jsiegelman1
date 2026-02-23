@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 02/16/2026 <!-- lfm -->   
+**Last updated:** 02/23/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
-2. <!-- lfm -->Inlet by Hum  
+2. <!-- lfm -->Sunlight Echoes by Whitelands  
 3. <!-- lfm -->The Great Dismal by Nothing  
-4. <!-- lfm -->Sunlight Echoes by Whitelands  
-5. <!-- lfm -->Leaves Turn Inside You by Unwound  
+4. <!-- lfm -->Frog in Boiling Water by DIIV  
+5. <!-- lfm -->Sunset Funeral by Glare  
