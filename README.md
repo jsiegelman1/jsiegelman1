@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/09/2026 <!-- lfm -->   
+**Last updated:** 03/16/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
 2. <!-- lfm -->The Great Dismal by Nothing  
-3. <!-- lfm -->Frog in Boiling Water by DIIV  
-4. <!-- lfm -->Sunlight Echoes by Whitelands  
-5. <!-- lfm -->Deathconsciousness by Have a Nice Life  
+3. <!-- lfm -->a short history of decay by Nothing  
+4. <!-- lfm -->The Black Moon by Holy Fawn  
+5. <!-- lfm -->Leaves Turn Inside You by Unwound  
