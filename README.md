@@ -14,7 +14,7 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 03/23/2026 <!-- lfm -->   
+**Last updated:** 03/30/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
 2. <!-- lfm -->a short history of decay by Nothing  
 3. <!-- lfm -->Leaves Turn Inside You by Unwound  
