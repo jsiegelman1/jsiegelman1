@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/06/2026 <!-- lfm -->   
-1. <!-- lfm -->Soft Spot by Honningbarna  
-2. <!-- lfm -->a short history of decay by Nothing  
-3. <!-- lfm -->I Love My Computer by Ninajirachi  
-4. <!-- lfm -->Pop by Carousels  
-5. <!-- lfm -->Sunset Funeral by Glare  
+**Last updated:** 04/13/2026 <!-- lfm -->   
+1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+2. <!-- lfm -->Vol.II by Angine de poitrine  
+3. <!-- lfm -->Soft Spot by Honningbarna  
+4. <!-- lfm -->Vol.1 by Angine de poitrine  
+5. <!-- lfm -->Relationship of Command by At the Drive-In  
