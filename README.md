@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 04/13/2026 <!-- lfm -->   
-1. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-2. <!-- lfm -->Vol.II by Angine de poitrine  
-3. <!-- lfm -->Soft Spot by Honningbarna  
-4. <!-- lfm -->Vol.1 by Angine de poitrine  
-5. <!-- lfm -->Relationship of Command by At the Drive-In  
+**Last updated:** 04/20/2026 <!-- lfm -->   
+1. <!-- lfm -->Soft Spot by Honningbarna  
+2. <!-- lfm -->Leaves Turn Inside You by Unwound  
+3. <!-- lfm -->come back down by Total Wife  
+4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
+5. <!-- lfm -->Vol.II by Angine de poitrine  
