@@ -14,9 +14,9 @@ Feel free to add me on [LinkedIn](https://www.linkedin.com/in/jacob-siegelman/) 
 - Pronouns: He/Him
 
 ### My Most Listened to Albums of the Last Month
-**Last updated:** 05/04/2026 <!-- lfm -->   
+**Last updated:** 05/11/2026 <!-- lfm -->   
 1. <!-- lfm -->Soft Spot by Honningbarna  
 2. <!-- lfm -->Leaves Turn Inside You by Unwound  
 3. <!-- lfm -->come back down by Total Wife  
-4. <!-- lfm -->Velocity: Design: Comfort. by Sweet Trip  
-5. <!-- lfm -->Vol.II by Angine de poitrine  
+4. <!-- lfm -->Yank Crime by Drive Like Jehu  
+5. <!-- lfm -->Ravedeath, 1972 by Tim Hecker  
